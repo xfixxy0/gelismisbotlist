@@ -1,0 +1,2 @@
+# gelismisbotlist
+GELİSMİS BOTLİST
